@@ -1,16 +1,13 @@
-## Hi there 👋
+##Matheus-
 
-<!--
-**baianodonordeste3/baianodonordeste3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- gosto de anime
+- gosto de jogar futebol
+- gosto de aisitir filmes (proncipalmente Gente Grande)
+- Corinthians ate morrer
+
+
+
+![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExNHd3bmZmaGZmdXlob3FhM3AxcnhoYXZsY2RkaHF5cWd2ZGNyamZpZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/UPQLUCEYy0SfuXAgw4/giphy.gif)
+![](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExMGxpbTUxNHR1eGc1MnY1c3ZncnlmdmE2Z29kNmlmaHNxZ25pZ3R5aCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/QfCQQQAI860CXZY9qs/giphy.gif)
