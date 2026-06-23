@@ -4,7 +4,7 @@
 - gosto de anime
 - gosto de jogar futebol
 - gosto de aisitir filmes (proncipalmente Gente Grande)
-- Corinthians ate morrer
+- Corinthians até morrer
 
 
 
