@@ -20,8 +20,4 @@
 
 
 
-
-
-
-
 ![](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2E0emZ1aXp4aGxhY3NtY2hrem9iazY3N2xpZDUxaDU4NjdkYTlmcyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Hw0wIr1YL75VC/giphy.gif)
